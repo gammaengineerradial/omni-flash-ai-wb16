@@ -1,4 +1,4 @@
-# 
+# Seguro Omni Flash modelos. Com modelos híbridos de IA e busca semântica — otimizado para máximo desempenho e eficiência.
 
 
 
